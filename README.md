@@ -1,7 +1,7 @@
 # This_Might_Help
 ## Phenomenology / Symptomatology / Mitigation
 
-Hard won, but non-clinical insights on mental health and modernity. Not medical advice.
+Hard won, but non-clinical insights on mental health in modernity. Not medical advice.
 
 ### Random noise -> Pareidolia
 
