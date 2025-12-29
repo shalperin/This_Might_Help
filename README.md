@@ -1,5 +1,6 @@
 # This_Might_Help
-##Phenomenology / Symptomatology / Mitigation
+## Phenomenology / Symptomatology / Mitigation
+
 Hard won, but non-clinical insights on mental health and modernity. Not medical advice.
 
 ### Random noise -> Pareidolia
