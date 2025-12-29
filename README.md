@@ -67,3 +67,11 @@ Mitigation
 - Sleep track (again, I like lo-fi or classical) with a sleep timer
 - Notebook by the bedside to just get ideas out in a terse, shorthand
 - Gently moving towards letting go of the need to capture or otherwise act on ideas.  An appreciation from the tech community that ideas aren't actually that significant might help "it's not the [fast] idea, it's the [slow, methodical] implementation that counts".
+
+### Intense, unmanageable guilt 
+
+I don't know that I can really describe the phenomenon or need to.
+
+Mitigation 
+- Comedy.
+- If the source of the guilt is something basically stupid like masturbation or porn, I like: Taylor Tomlinson, Richard Pryor, George Carlin, Eddie Murphy.
