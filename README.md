@@ -74,4 +74,4 @@ I don't know that I can really describe the phenomenon or need to.
 
 Mitigation 
 - Comedy.
-- If the source of the guilt is something basically stupid like masturbation or porn, I like: Taylor Tomlinson, Richard Pryor, George Carlin, Eddie Murphy.
+- If the source of the guilt is something basically stupid like masturbation or porn, I like: Taylor Tomlinson, Sarah Silverman, Richard Pryor, George Carlin, and Eddie Murphy.
